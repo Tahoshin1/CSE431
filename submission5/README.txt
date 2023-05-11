@@ -1,4 +1,4 @@
-Overleaf link with edit access to ST, RA and my gmail.
+Overleaf link with edit access to ST, RA and my gmail
 https://www.overleaf.com/read/zsgpdsnvfkbz
 
 Unlisted YouTube video:
