@@ -10,7 +10,6 @@ completed book:
 
 did project:
 
-
 did something else
 
 
